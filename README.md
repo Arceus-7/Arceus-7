@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello I am CS/Math enthusiast who makes silly websites and occasionally some good stuff.<br>I am pursing my math major.<br> I am also a graphics and motion desginer who likes to make cool stuff <br>Here's my social:- https://www.instagram.com/ozu.was.here/
+Hello I am CS/Math enthusiast who makes occasionally some good stuff.<br>I am pursing my math major.<br> I am also a graphics and motion desginer who likes to make cool stuff <br>Here's my social:- https://www.instagram.com/ozu.was.here/
 
 
 ## 🌐 Socials:
